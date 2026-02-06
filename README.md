@@ -1,1 +1,0 @@
-# tharick-lovee.github.io
